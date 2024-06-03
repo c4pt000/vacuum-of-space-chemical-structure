@@ -6,7 +6,7 @@ SIDE THEORY ABOUT THE VACUUM OF SPACE AND BLACK HOLES IN GENERAL...
 Interesting thing about the actual "vacuum of space"
 the empty VOID of space itself might be a type of "chemical structure" even though it doesn't seem to make sense as an empty "VOID" of nothingness...
 
-black holes when they form actual swirl in a twisting motion like a physical dense liquid even though space itself is not compromised of a physical "liquid"
+black holes when they form actually swirl in a twisting motion like a physical dense liquid even though space itself is not compromised of a physical "liquid"
 
 when space-time bends from enough gravity its almost like the same motion of "space-time" bending in an oceanic whirlpool
 
